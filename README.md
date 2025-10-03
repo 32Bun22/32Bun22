@@ -1,4 +1,4 @@
-## Hi there 👋
+## Люблю спать, люблю есть, люблю деньги. Много что люблю.
 
 <!--
 **32Bun22/32Bun22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
